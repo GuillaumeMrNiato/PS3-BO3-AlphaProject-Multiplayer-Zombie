@@ -3,4 +3,18 @@
 This is the most complete tool for Black ops 3 PS3.  You can edit a lots of statistics such as medals, weapons,etc... (multiplayer & zombie)
 
 
-https://image.noelshack.com/fichiers/2019/06/3/1549432048-alpha-project-for-black-ops-3-mp-zm-on-ps3-by-mrniato.png
+# Video :
+
+https://www.youtube.com/watch?v=M7s2Ag2pO-E
+
+https://www.youtube.com/watch?v=qBeTGjkh__I
+
+
+
+# Follow me :
+
+
+➡️➡️ Follow me on Twitter : https://twitter.com/ImMrNiato ⬅️⬅️
+
+➡️➡️ Buy me a lunch : https://www.paypal.me/mrniato1/5 ⬅️⬅️
+
